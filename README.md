@@ -23,13 +23,13 @@ Send a PR!
 
 ## Values
 
-### Putting the company vs. Putting yourself or your company first 
+### Putting the company first vs. Putting yourself or your company first 
 
 *Putting the company first* - At this stage of the company, we need people to be all-in, and sacrifices will be made in your personal life. Maybe there will be long hours, things might get stressful, but we're committed to working together. The reasons for you being here (total compensation, mission, career-building) are making it worth it.
 
 *Putting yourself/Family first* - We recognize this is a marathon, not a sprint. Building this company is a long haul, and we want to be sure you are fresh and ready to crush it when you're here at work. When your day is done, close your computer and do what you need to prepare for tomorrow. If you're suffering from burnout, we will give you paid time off and support you in how we can get you better.
 
-### Performance
+### Firing underperformers quickly vs Hiring for culture fit/potential and emphasis on coaching
 
 *Firing underperformers quickly* - We need people to be at the top of their game and perform well during your entire duration at the company. If performance drops, we will end termination and thank you for your time. Netflix's famous culture quote: "Adequate Performance Gets You a Generous Severance Package ."[Netflix's Approach Unpacked here](https://www.youtube.com/watch?v=rkuk6Bi6NGY)
 
